@@ -14,4 +14,5 @@
 ![image](https://github.com/VadoSVad/protei_2_3_sprint/assets/62515524/eb4ab414-c9dd-4fda-976b-357df2c74876)
 ![image](https://github.com/VadoSVad/protei_2_3_sprint/assets/62515524/883c02db-aaae-45ee-bf0f-30cbf707b8f7)
 
+![image](https://github.com/VadoSVad/protei_2_3_sprint/assets/62515524/06f99b02-037d-474b-a7ae-17626ad5cded)
 
